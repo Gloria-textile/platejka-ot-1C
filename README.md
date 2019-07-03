@@ -1,1 +1,0 @@
-# platejka-ot-1C
